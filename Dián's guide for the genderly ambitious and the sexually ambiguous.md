@@ -3,7 +3,8 @@ So, you think you may be a trans of gender, you feel safer around queer people, 
  Well I have good news for you, it's all bullshit
  Being a man and being a woman is bs, being trans or cis is bs, being gay or not is (kinda) bs, (scientifically we don't really know if it is bs but that's the point)
  
-1. **It's all bs** 
+1. **It's all bs**
+
  Sadly, to start this journey we have to start with some philosophy.
  What is gender?
  The most common understanding of gender and sexuality is as an essence, something that is part of you, like your personality, your birthday or your hair.
@@ -23,8 +24,9 @@ Easy (not really), we are constantly creating it. We give people their genders w
  ![](local://C:/Users/gcoli/remnote/remnote-A2eSQhBknh7xEnxjM/files/KlDuKTIYJXFg4hBF2KYlnmcRJIyNIY7UcEmH3LPsSaUsXFH88A0A83BmtHs3IRrK-u0OyTVRlc-Zjz1WgJB_ERoaSQVFvk1von5LvN0Os8yquvrIIKtiva1roZHyVHAE.jpeg) 
  It's also important to note that the current form of gender serves to hurt... most minorities (look up fd signifier on youtube, homophobia wouldn't exist without gender, the idea of family as the standard hurts poor, and disabled people, etc.) women and surprisingly, it also hurts men, surprisingly.
  
-2. **Or is it????** 
- Ok, so, we are fucked right?, gender is everywhere and it is not something that is inside every one of us, it is an illusion that we kind of need to live.
+2. **Or is it????**
+
+Ok, so, we are fucked right?, gender is everywhere and it is not something that is inside every one of us, it is an illusion that we kind of need to live.
  What makes my experience of myself superior to other's? Am I saying that trans people are delusional because their perception of themselves is different to everyone's? (No lmao)
  I think we queer people show the edges of gender, where it doesn't work, gay people changed what it meant to be a man or a woman, trans people have changed the solidity of gender, now we can PLAY with gender, thanks to everyone who has done it before.
  We have to focus our understanding on joy, nothing we thought was true is, then lets have fun
@@ -39,8 +41,10 @@ Easy (not really), we are constantly creating it. We give people their genders w
  
  
  **Post Script:** 
+ 
  Personally, I am trans because I like being seen as a weird woman-thing more than a weird man-thing, because I feel safer around queer people and I relate to them, and I want them to relate to me.
  
  **Extra material classss** 
- Gender trouble (do not recommend if you don't like to read, it's very hard)
- [Okaeri Alice Chapter 1: The Awakening - Manganelo](https://chapmanganato.to/manga-hg985263/chapter-1) Welcome back alice, a manga that explains what I personaly feel about gender, it's weird and very much mature, so viewer discretion is adviced, it made me ugly cry, I think it's good and I need to talk about it
+ - Gender trouble (do not recommend if you don't like to read, it's very hard)
+ 
+ - [Okaeri Alice Chapter 1: The Awakening - Manganelo](https://chapmanganato.to/manga-hg985263/chapter-1) Welcome back alice, a manga that explains what I personaly feel about gender, it's weird and very much mature, so viewer discretion is adviced, it made me ugly cry, I think it's good and I need to talk about it
