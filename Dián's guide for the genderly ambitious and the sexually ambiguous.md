@@ -10,7 +10,7 @@ So, you think you may be a trans of gender, you feel safer around queer people, 
  The most common understanding of gender and sexuality is as an essence, something that is part of you, like your personality, your birthday or your hair.
  Boring people will say it's fixed, and the same as sex, cooler people will say it's fixed but different from sex, even cooler goobers will claim it exists, but is maleable and different from sex.
  
- But there is no evidence of this essence, not in our brains (the female brain studies were usually on women on hrt so the hormones are the ones with the power there) or in society (different cultures have different conceptions of gender)
+ But there is no evidence of this essence, not in our bodies(the closest thing is sex and it is malleable with hrt and also intersex people exist) or in society (different cultures have different conceptions of gender)
  So it's not an essence, but it obiously exists, it's everywhere
  The next step is more complicated. This is the only understanding  of gender I've read that really makes sense:
  Gender is how you experience it and it is societal. The way in which we see the world is not through our senses directly, but through our experiences of those senses, a letter from a friend can hold love, not only it's touch, smell and looks, you can see a door and know there is something on the other side,etc.
@@ -20,9 +20,8 @@ So, you think you may be a trans of gender, you feel safer around queer people, 
 I never felt dysphoria until I realized I was a woman, when I started seeing my body as a woman's, and then, societies standards for women's bodies fucking destroyed me.
  Admitting you are trans is so scary because when you admit that you are, everything crumbles, you change yourself and suddenly everyone's perception of you is deeply wrong.
  So, why does gender exist? 
-Easy (not really), we are constantly creating it. We give people their genders when we treat them in a certain way, we reinforce the idea of gender when we write "for MEN" in a skincare product bc skincare is for WOMEN, society creates gender by BELIEVEING it exists, by performing it. In this way, gender is real, but it does not need to exist. It does exist bc it is woven through the fabric of our
- ![](local://C:/Users/gcoli/remnote/remnote-A2eSQhBknh7xEnxjM/files/KlDuKTIYJXFg4hBF2KYlnmcRJIyNIY7UcEmH3LPsSaUsXFH88A0A83BmtHs3IRrK-u0OyTVRlc-Zjz1WgJB_ERoaSQVFvk1von5LvN0Os8yquvrIIKtiva1roZHyVHAE.jpeg) 
- It's also important to note that the current form of gender serves to hurt... most minorities (look up fd signifier on youtube, homophobia wouldn't exist without gender, the idea of family as the standard hurts poor, and disabled people, etc.) women and surprisingly, it also hurts men, surprisingly.
+Easy (not really), we are constantly creating it. We give people their genders when we treat them in a certain way, we reinforce the idea of gender when we write "for MEN" in a skincare product bc skincare is for WOMEN, society creates gender by BELIEVEING it exists, by performing it. In this way, gender is real, but it does not need to exist. It does exist bc it is woven through the fabric of our society
+ It's also important to note that the current form of gender serves to hurt... most minorities ([look up fd signifier on youtube](https://youtu.be/RP1YI6Wi6gs?si=4KpMe1t9_8CxMhae), homophobia wouldn't exist without gender, the idea of family as the standard hurts poor, and disabled people, etc.) women and surprisingly, it also hurts men, surprisingly.
  
 2. **Or is it????**
 
@@ -45,6 +44,9 @@ Ok, so, we are fucked right?, gender is everywhere and it is not something that 
  Personally, I am trans because I like being seen as a weird woman-thing more than a weird man-thing, because I feel safer around queer people and I relate to them, and I want them to relate to me.
  
  **Extra material classss** 
- - Gender trouble (do not recommend if you don't like to read, it's very hard)
+
+ - A video that explains what I mean by it's all bs way better than I can: https://youtu.be/fadSfCyQCjQ?si=vn7GWfgoBcD0Ku4R
+ 
+ - Gender trouble (do not recommend if you don't like to read, it's very hard to read unless you like philosophy)
  
  - [Okaeri Alice Chapter 1: The Awakening - Manganelo](https://chapmanganato.to/manga-hg985263/chapter-1) Welcome back alice, a manga that explains what I personaly feel about gender, it's weird and very much mature, so viewer discretion is adviced, it made me ugly cry, I think it's good and I need to talk about it
