@@ -21,7 +21,7 @@ I never felt dysphoria until I realized I was a woman, when I started seeing my 
  Admitting you are trans is so scary because when you admit that you are, everything crumbles, you change yourself and suddenly everyone's perception of you is deeply wrong.
  So, why does gender exist? 
 Easy (not really), we are constantly creating it. We give people their genders when we treat them in a certain way, we reinforce the idea of gender when we write "for MEN" in a skincare product bc skincare is for WOMEN, society creates gender by BELIEVEING it exists, by performing it. In this way, gender is real, but it does not need to exist. It does exist bc it is woven through the fabric of our society
- It's also important to note that the current form of gender serves to hurt... most minorities ([look up fd signifier on youtube](https://youtu.be/RP1YI6Wi6gs?si=4KpMe1t9_8CxMhae), homophobia wouldn't exist without gender, the idea of family as the standard hurts poor, and disabled people, etc.) women and surprisingly, it also hurts men, surprisingly.
+ It's also important to note that the current form of gender serves to hurt... most minorities ([look up fd signifier on youtube](https://youtu.be/RP1YI6Wi6gs?si=4KpMe1t9_8CxMhae), homophobia wouldn't exist without gender, the idea of family as the standard hurts poor, and disabled people, etc.), women and , it also hurts men, surprisingly.
  
 2. **Or is it????**
 
