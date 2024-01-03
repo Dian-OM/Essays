@@ -1,4 +1,4 @@
-So, you think you may be a trans of gender, you feel safer around queer people, you don't feel dysphoria but you feel like you are not enough for yourself, you don't know if you are a woman or a man, people KEEP THINKING YOU ARE BI (I may be projecting with that one) or you think you are not trans but relate hard to trans people?
+So, you think you may be a trans of gender, you feel safer around queer people, you don't feel dysphoria but you feel like you are not enough for yourself, you don't know if you are a woman or a man, people KEEP THINKING YOU ARE BI (I may be projecting with that one) or you think you are not trans but relate a lot to trans people?
  
  Well I have good news for you, it's all bullshit
  Being a man and being a woman is bs, being trans or cis is bs, being gay or not is (kinda) bs, (scientifically we don't really know if it is bs but that's the point)
